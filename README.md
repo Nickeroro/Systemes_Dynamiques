@@ -1,1 +1,0 @@
-# Systemes_Dynamiques
